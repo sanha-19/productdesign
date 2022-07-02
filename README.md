@@ -3,3 +3,4 @@
 **IIIC**
 1. Experiment no 1
 [Google Slide](https://docs.google.com/presentation/d/1DA3mtk4eHXMOqwPuHtoBt9MC-hH1yeNee5AvBxgOgNQ/edit?usp=sharing)
+![my pic](https://github.com/sanha-19/productdesign/blob/main/IMG/Snapchat-2050663138.jpg)
